@@ -8,4 +8,4 @@ Actualmente trabajo en una empresa fintech donde me enfrento a desafíos constan
 
 Cual es mi pasion? 
 
-Viajar MUCHO MUCHO!!!<font style="vertical-align: inherit;"><font style="vertical-align: inherit;">✈</font></font> y disfrutar de mis mascotas <font style="vertical-align: inherit;"><font style="vertical-align: inherit;">🐱</font></font> <font style="vertical-align: inherit;"><font style="vertical-align: inherit;">🦮</font></font>
+Viajar MUCHO MUCHO!!!<font style="vertical-align: inherit;"><font style="vertical-align: inherit;">✈</font></font>  <font style="vertical-align: inherit;"><font style="vertical-align: inherit;">🐱</font></font> <font style="vertical-align: inherit;"><font style="vertical-align: inherit;">🦮</font></font>
